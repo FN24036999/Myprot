@@ -1,6 +1,6 @@
 # My profile 
 
-<img width="1044" height="1566" alt="56064" src="https://github.com/user-attachments/assets/56101ff1-6dc9-426c-8d6a-a8b4b7b24386" />
+<img width="853" height="1280" alt="59134" src="https://github.com/user-attachments/assets/5b8cf0f0-6405-4576-bcae-104dd2809f3f" />
 
 <h2>นางสาวอนัญญา ชวนชื่น</h2>
 
